@@ -13,6 +13,14 @@ F.<?xml version="1.0" encoding="UTF-8"?>
       </publicationStmt>
       <sourceDesc>
         <p>Original text from "Eighteenpence" by R.E.Obeng.</p>
+	<p>Original text from "Ethiopia Unbound" by J. E. Casely Hayford.</p>
+      </sourceDesc>
+    </fileDesc>
+  </teiHeader>
+  <text>
+    <body>
+      <div type="chapter" n="I">
+        <head>The Purchase</head>
 CHAPTER 1
 The Purchase
 
