@@ -448,21 +448,25 @@ CHAPTER 8
 
 CHAPTER 9: The Transfer of Owusu's Case to the Omanhene of Kwahu. Konaduwa Divorced 
 
-KONADUWA HAVING said this, the Court rose, and the District Commissioner drafted the following letter and gave it to his Correspondence Clerk for typing. 
-Ref. No. 47/B.B./Case 78/13 District 
-Commissioner's Office 
-Asiakwa, Birim District. 
-7 August, 1913.
+<p>KONADUWA HAVING said this, the Court rose, and the District Commissioner drafted the following letter and gave it to his Correspondence Clerk for typing. </p>
 
- My Good Friend,
- I have the honour to inform you that I have examined Owusu Aduemiri under the Charge of "Dealing in the Slave Trade." I have examined Owusu Aduemiri, together with the witnesses for and against the Prosecution, and found that Obeng-Akrofi, the man alleged to have been sold and bought, did voluntarily work for Owusu but once on account of the paltry sum of One shilling and Sixpence, an amount which cannot possibly buy a fowl of fairly good size. Owusu's wife who was the principal witness for the prosecution, now gave evidence that Obeng-Akrofi owed her husband the amount mentioned above, but not £18 as she told the police before you. This being the case, the Court found that there is no case in the matter, and Owusu has consequently been released from the Charge.
- I am, however, sending Konaduwa, who coined this sham punish or strongly reprimand her as a warning to other people not to act in like manner. 
-I have the honour to be, 
-Your good friend, N. N. 
-DISTRICT COMMISSIONER
- Birim District
+<p>Ref. No. 47/B.B./Case 78/13 District</p> 
+<p></p>Commissioner's Office</p> 
+<p><persName>Asiakwa</persName>, Birim District.</p> 
+<p>7 August, 1913.</p>
 
- At the completion of the above letter, Owusu and all the other people were sent back with the official letter. When they came to the river Birim, which had flooded its banks, Konaduwa ,saw her old friend Amoako, the ferry-man, and whispered into his ears that Owusu's relatives had openly said that they would dissolve their marriage; and if he liked to marry her, as  !!evidenced in his movements and acts, he should proceed to Abetifi in due course to see how the matter would end. On hearing this, Amoako became as happy as Adam before God took away his best rib, and was full of laughter and sparkling with animation like a child leaving school for holidays. He  therefore promised to follow her as soon as possible. Konaduwa warned him, however, to act wisely, for if he did anything to betray his intention, Owusu could customarily swear an oath  to preclude him from that marriage, and then all his time and Jr energy spent on her would be wasted for nothing. Amoako nodded to assent to this, and untied two florins from the edge £ of his handkerchief which he had wished to give her. Astutely Konaduwa refused the offer, and explained that if Owusu A divorced her, she would according to custom, swear a fetish- oath upon which she had to confess everything she had done contrary to marriage-custom, and mention any tiny present another man had given her, even if the giver were her husband's relative. If she intentionally or through oversight left anything in secrecy, the fetish would kill her. It was obvious that she must mention that money he intended to give her, and if they" married afterwards, he would be charged with seduction and; fined heavily, and at last their marriage would be annulled. 
+ <p>My Good Friend,</p>
+ <p>I have the honour to inform you that I have examined Owusu Aduemiri under the Charge of "Dealing in the Slave Trade." I have examined <persName>Owusu Aduemiri</persName>, together with the witnesses for and against the Prosecution, and found that Obeng-Akrofi, the man alleged to have been sold and bought, did voluntarily work for <persName>Owusu</persName> but once on account of the paltry sum of One shilling and Sixpence, an amount which cannot possibly buy a fowl of fairly good size. Owusu's wife who was the principal witness for the prosecution, now gave evidence that <persName>Obeng-Akrofi</persName> owed her husband the amount mentioned above, but not £18 as she told the police before you. This being the case, the Court found that there is no case in the matter, and <persName>Owusu</persName> has consequently been released from the Charge.</p>
+ 
+ <p>I am, however, sending <persName>Konaduwa</persName>, who coined this sham punish or strongly reprimand her as a warning to other people not to act in like manner.</p>
+ 
+<p>I have the honour to be,</p>
+<p>Your good friend, N. N.</p> 
+<p>DISTRICT COMMISSIONER</p>
+ <p>Birim District</p>
+
+ <p>At the completion of the above letter, Owusu and all the other people were sent back with the official letter. When they came to the river Birim, which had flooded its banks, <persName>Konaduwa</persName> ,saw her old friend <persName>Amoako</persName>, the ferry-man, and whispered into his ears that Owusu's relatives had openly said that they would dissolve their marriage; and if he liked to marry her, as  !!evidenced in his movements and acts, he should proceed to Abetifi in due course to see how the matter would end. On hearing this, Amoako became as happy as Adam before God took away his best rib, and was full of laughter and sparkling with animation like a child leaving school for holidays. He  therefore promised to follow her as soon as possible. <persName>Konaduwa</persName> warned him, however, to act wisely, for if he did anything to betray his intention, Owusu could customarily swear an oath  to preclude him from that marriage, and then all his time and Jr energy spent on her would be wasted for nothing. <persName>Amoako</persName> nodded to assent to this, and untied two florins from the edge £ of his handkerchief which he had wished to give her. Astutely <persName>Konaduwa</persName> refused the offer, and explained that if Owusu A divorced her, she would according to custom, swear a fetish- oath upon which she had to confess everything she had done contrary to marriage-custom, and mention any tiny present another man had given her, even if the giver were her husband's relative. If she intentionally or through oversight left anything in secrecy, the fetish would kill her. It was obvious that she must mention that money he intended to give her, and if they" married afterwards, he would be charged with seduction and; fined heavily, and at last their marriage would be annulled.</p>
+ 
 When this conversation was going on between them, Konaduwa used to look askance at her husband. Owusu's eyes met with hers accidentally, and he wondered what that shrewd woman was telling the stranger. 
 The passengers and their luggage were put on the pontoon, and Amoako and his fellow pontoonniers ferried them to the other bank with all hilarity. All the time Owusu was wondering what the conversation between his wife and that Akyem man was about; but he dared not ask her, for he knew full well that she would not tell him the truth, yet it would forewarn her that he was suspicious. 
 They arrived at Abetifi three days after their departure from Asiakwa, for the whole length of the road was muddy, ankle-deep. O, those old days, when heavy loads weighing sixty pounds were carried on the head through those muddy roads. There was not the least idea of railways and the travelling in ease and comfort as it is now! 
