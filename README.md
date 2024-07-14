@@ -90,89 +90,143 @@ He was very much pleased, and said: "How true it is that after a great storm, th
 CHAPTER 4 A Mother's Yearning 
 <p>AS <persName>OWUSU</persName> was going go his house, he met with his mother who had gone to his end in his absence several times that evening; and as she could not guess where he had gone, she was going to <persName>Akua Adae’s</persName> house to inquire if she had seen him. When Qdakwaa Aboroma (for that was the name of Owusu׳s mother) was going to ,<persName>Akua Adae's</persName> house, she met with <persName>Konaduwa</persName> who was very hotly angry. She asked Konaduwa why and with whom she was quarrelling; but she did not receive any answer. She thought <persName>Konaduwa</persName>persName> was quarrelling with <perName>Adae</perName>. <persName>Odakwaa</persName> then turned and looked at Owusu who was being led by his son Atoapoma with a lantern. On seeing the bandage on his head which bore a speck of blood, she exclaimed with horror, saying: "Puei, puei, puei. Aduemiri, you are done for. What gave you this wound. Owusu, do speak to me, I am losing my mind. Are you a living dead?"</p>
 
- Owusu then said: "Mother, keep quiet, let us go home, and I will tell you all about it."
- The impatient woman repeatedly asked him to tell her all, there and then; but Owusu did not say a word. The woman then asked the boy if he knew what had caused the wound. With boyish eagerness Atoapoma told his grand-mother that he heard his father telling his mother that Konaduwa knocked him down and that his head struck against a door frame which wounded him. He added that it was his mother who had just dressed the wound and bandaged it. He concluded that Konaduwa started a quarrel with his mother, but she had kept mum. 
-On hearing this, Odakwaa rushed like an enraged tiger into the house of Konaduwa, and with all possible breath-rending anger, she said: "Do explain to me, you quarrelsome woman, why a woman can hurt her husband so dreadfully. What on earth prompted the quarrel?"
-	"Ask your son, for he knows what he did. I do not tremble a whit before you and your confederated allies. I am not unaware that you hate me with that hatred which no kindness or presents can appease. You are superlatively ungrateful, and like the grave, you are never satisfied, and so henceforth I will never try to please you, for all the waters of the ocean can never tum the swan's black legs white."
-"All right. Customarily, no woman speaks with such impudence to her mother-in-law; and upon this I am going to see that you be divorced."	—
-"Will you marry your son? If your son marries a thousand wives and you disgraced them all in public as you are now disgracing me, you will have to arrange a thousand divorces. But mind you, if you throw a stone at every dog that barks at you, the stones in your street will soon be as precious as jewels."
- "I have no heart for all these wiles," said Odakwaa. 
-"I have no stomach for such affronts either," returned Konaduwa. 
-"Tell me before the people why you knocked your husband down and tried to dash out his brains."
- "I will not utter a word even if you were to put me into a bottle."
-The exchange of these words attracted many more people to the scene. Some upbraided Konaduwa; others sympathised her. Some of the latter asked her to explain the cause of the quarrel with her mother-in-law, so that they could assist appeasing her anger, should it be found that she was in the wrong. But still she did not like to utter a word, to the amazement of all. Presently, however, she forced herself to speak, and said:
- "Harken to me, I pray, all you assembled. It is because of you, but not because of my mother-in-law, that I am speaking. "My husband sent me to his farm with a new servant he recently׳ bought. On the farm this servant began to show me signs of love. He beckoned me to go to him, and being ignorant of his intentions, I went there. But he had nothing to tell. This he did more than once. Seeing the evil that was on his mind, 1' told him that I had no inclination for such follies. At this he tossed his cutlass and caught it in his hands, brandished it in fury, bit his finger and threatened my life. But luckily, before he had time to execute his wishes, the voice of some men passing on the road nearby was heard, and like a hunted stag, he stole away into the bush and left me in the farm. Not knowing whether he had made an ambush on the road, I was compelled to remain in the farm with all fright imaginable. Nobody passed there until about five o'clock; when four men returned from a village, and I fell in with them. On my arrival home, being overcome with wonder and fright, I forgot either to go or to send to greet my husband according to custom. But Owusu was not alarmed by my unusual absence, and did not come to find me until after seven o'clock. And so it was nothing but this sheer neglect of me that prompted the quarrel." When she said this, thinking that she would be justified, her face beamed with radiant smiles.	
-When the above statement was being made, Odakwaa walked up and down the street with impatient sighs and steps I like a trapped animal in a cage. 
-Scarcely had the last word left Konaduwa's lips, when she said: 
-"You have killed Owusu, and you must take the consequences, you quarrelsome woman. Were some other woman to treat your brother in like manner, would you have it?" She then turned to the people, and said: "Save me, you gentlemen assembled. My legs can no longer carry my weight." 
-On saying this she flung herself down and rolled forwards and backwards like the sea whose waves are set in motion by the winds, and screamed like a jay. Konaduwa looked at her intently, and gathered herself into a black brooding cloud of, anger. When she was about to thunder upon her mother-in- law, a gentleman in the crowd requested her to explain the cause of the quarrel there and then so that they could assist in appeasing the intense anger of the woman, should they find she was in the wrong. Still she remained mum. The man then turned to Odakwaa and asked her to exercise patience for their sakes. But she said if Konaduwa had no respect for the men, she should be paid in her own coin. She said she had heard that Konaduwa had sworn that her husband should divorce her, contrary to the customs of the country; therefore in her opinion the case could not be settled outside the Adontenhene's Tribunal. 
-This statement passed a searchlight of truth and conviction through the minds of the people who assembled there, and they left the place one by one like the men who surrounded and accused the woman who was caught in the act of fornication. Though Konaduwa too was convinced, she became intensely angry, and began to howl and shout and thundered on the men who came there, and said: "My goodness! What ridiculous creatures men are. What cowards too. They are as brave as lions before a horde of savages, but before a woman — kapok!" 
-The remaining men, seeing that she was still pertinacious and obstinate in the last degree, ceased to plead for her; but she being confident of success, shouted all the more with a subtle emphasis of scorn. 
+ <p>Owusu then said: "Mother, keep quiet, let us go home, and I will tell you all about it."</p>
+ 
+<p> The impatient woman repeatedly asked him to tell her all, there and then; but Owusu did not say a word. The woman then asked the boy if he knew what had caused the wound. With boyish eagerness Atoapoma told his grand-mother that he heard his father telling his mother that Konaduwa knocked him down and that his head struck against a door frame which wounded him. He added that it was his mother who had just dressed the wound and bandaged it. He concluded that Konaduwa started a quarrel with his mother, but she had kept mum.</p>
+
+<p>On hearing this, Odakwaa rushed like an enraged tiger into the house of Konaduwa, and with all possible breath-rending anger, she said: "Do explain to me, you quarrelsome woman, why a woman can hurt her husband so dreadfully. What on earth prompted the quarrel?"</p>
+
+<p>"Ask your son, for he knows what he did. I do not tremble a whit before you and your confederated allies. I am not unaware that you hate me with that hatred which no kindness or presents can appease. You are superlatively ungrateful, and like the grave, you are never satisfied, and so henceforth I will never try to please you, for all the waters of the ocean can never tum the swan's black legs white."</p>
+
+<p>"All right. Customarily, no woman speaks with such impudence to her mother-in-law; and upon this I am going to see that you be divorced."</p>	
+
+<p>"Will you marry your son? If your son marries a thousand wives and you disgraced them all in public as you are now disgracing me, you will have to arrange a thousand divorces. But mind you, if you throw a stone at every dog that barks at you, the stones in your street will soon be as precious as jewels."</p>
+
+ <p>"I have no heart for all these wiles," said <persName>Odakwaa</persName>.</p>
+ 
+<p>"I have no stomach for such affronts either," returned <persName>Konaduwa</persName>.</p>
+
+<p>"Tell me before the people why you knocked your husband down and tried to dash out his brains."</p>
+
+ <p>"I will not utter a word even if you were to put me into a bottle."</p>
+	 
+<p>The exchange of these words attracted many more people to the scene. Some upbraided <persName>Konaduwa</persName>; others sympathised her. Some of the latter asked her to explain the cause of the quarrel with her mother-in-law, so that they could assist appeasing her anger, should it be found that she was in the wrong. But still she did not like to utter a word, to the amazement of all. Presently, however, she forced herself to speak, and said:</p>
+
+<p>"Harken to me, I pray, all you assembled. It is because of you, but not because of my mother-in-law, that I am speaking. "My husband sent me to his farm with a new servant he recently׳ bought. On the farm this servant began to show me signs of love. He beckoned me to go to him, and being ignorant of his intentions, I went there. But he had nothing to tell. This he did more than once. Seeing the evil that was on his mind, 1' told him that I had no inclination for such follies. At this he tossed his cutlass and caught it in his hands, brandished it in fury, bit his finger and threatened my life. But luckily, before he had time to execute his wishes, the voice of some men passing on the road nearby was heard, and like a hunted stag, he stole away into the bush and left me in the farm. Not knowing whether he had made an ambush on the road, I was compelled to remain in the farm with all fright imaginable. Nobody passed there until about five o'clock; when four men returned from a village, and I fell in with them. On my arrival home, being overcome with wonder and fright, I forgot either to go or to send to greet my husband according to custom. But Owusu was not alarmed by my unusual absence, and did not come to find me until after seven o'clock. And so it was nothing but this sheer neglect of me that prompted the quarrel." When she said this, thinking that she would be justified, her face beamed with radiant smiles.</p>
+
+<p>When the above statement was being made, <persName>Odakwaa</persName> walked up and down the street with impatient sighs and steps I like a trapped animal in a cage.</p>
+
+<p>Scarcely had the last word left <perName>Konaduwa's</perName> lips, when she said:</p>
+
+<p>"You have killed <persName>Owusu</persName>, and you must take the consequences, you quarrelsome woman. Were some other woman to treat your brother in like manner, would you have it?" She then turned to the people, and said: "Save me, you gentlemen assembled. My legs can no longer carry my weight."</p>
+
+<p>On saying this she flung herself down and rolled forwards and backwards like the sea whose waves are set in motion by the winds, and screamed like a jay. <perName>Konaduwa</perName> looked at her intently, and gathered herself into a black brooding cloud of, anger. When she was about to thunder upon her mother-in- law, a gentleman in the crowd requested her to explain the cause of the quarrel there and then so that they could assist in appeasing the intense anger of the woman, should they find she was in the wrong. Still she remained mum. The man then turned to Odakwaa and asked her to exercise patience for their sakes. But she said if <persName>Konaduwa</persName>persName> had no respect for the men, she should be paid in her own coin. She said she had heard that <persName>Konaduwa</persName> had sworn that her husband should divorce her, contrary to the customs of the country; therefore in her opinion the case could not be settled outside the Adontenhene's Tribunal.</p>
+
+<p>This statement passed a searchlight of truth and conviction through the minds of the people who assembled there, and they left the place one by one like the men who surrounded and accused the woman who was caught in the act of fornication. Though <persName>Konaduwa</persName> too was convinced, she became intensely angry, and began to howl and shout and thundered on the men who came there, and said: "My goodness! What ridiculous creatures men are. What cowards too. They are as brave as lions before a horde of savages, but before a woman — kapok!"</p>
+
+<p>The remaining men, seeing that she was still pertinacious and obstinate in the last degree, ceased to plead for her; but she being confident of success, shouted all the more with a subtle emphasis of scorn.</p> 
 
 CHAPTER 5 The Report 
-AMONG THE men assembled there, was one whom Odakwa respected. This man held her by the hand, and led her to her house, when Konaduwa was still brawling. Not long after her departure, Kwaku Anyinam, a trusted minister to Nana Addo Kwame, happened to pass by on his own accord. When Konaduwa saw him she shouted more loudly, and repeated the words she first spoke to Akua Adae, her rival, at the beginning of the quarrel. She then lay a stronger emphasis on these words:
- "You say the Adontenhene and his Elders, including Nana Adoma Hemma, the Queenmother, are all extortioners. You will be answerable sometime to the owners of this town." 
-When Anyinam heard this, he exclaimed: "Madam Konaduwa, I have found a treasure-trove in your mouth. You say somebody lives in this town who has been so fearlessly able to speak against the Adontenhene whose justice, generosity and affection towards his subjects is known throughout Akyem, Asante, Kotoku, Accra and Akuapem? You say that the same person had the audacity to speaking ill against our gracious and esteemed Queen-Mother as well as the Elders of Abetifi. Why did you not report the case officially to the Linguist, so that sheep might be slaughtered before the news reaches the Elders? You have intentionally concealed the matter and you have therefore broken the Great Oath of the Omanhene, to whom you will be answerable."  
-Having said this, Anyinam went to the house of Okyeame Kwadwo Kuma with the speed of a lightning and reported the ׳case to him. No sooner had he finished speaking, when twelve !'sheep were caught in the street and slaughtered; their prices varied from Asia to Dwaa. One foreleg of each sheep was put ־aside for the offender, according to the custom of the country. The Okyeame then went with the dead sheep to the house of the Adontenhene, who, on seeing the carcasses, sent for Adane, the Head Drummer, whom he ordered to sound a summoning, call. The big drums, the talking drums and all the smaller ones were beaten with not a little vehemence, and the horns were blown. 
-The sudden sounding of the drums set the whole town in commotion. Men, women and children who had gone to their farms6 to do their usual work rushed home, and forced (their way to the Ahenfie to hear what was the matter. You can imagine what pandemonium ruled the place? Stool carriers from lithe houses of the Elders poured in from all the corners of the town, carrying the chairs or stools of their masters. 
-In his eagerness, the Principal Sword-Bearer, Kwabena Somua, who was then in an extreme hurry, knocked down a young woman carrying some food on a tray. Down went the young woman and the tray, and the bridal food intended for the husband of another young woman named Afriyie was ' spilled on the ground and the dishes shattered to pieces. 
-The young girl rose to her feet, and in fit of anger said to the Sword-Bearer: "Why did you act so foolishly? Have you got your eyes at your anus?"
- Among the Akans, the word "FOOL" is never spoken to an ordinary man by any woman whatever. It is punishable by fines and the slaughter of sheep. Unfortunately, Kwabena Somua was not an ordinary man. As stated before, he was the Chief Sword-Bearer who wore a head-gear made of an eagle's feathers with a replica of two sheep horns, one gilded with gold and the other with silver fixed in front of his hat. This hat indicated the loftiness of his rank. As you can imagine, this insult was considered most aggravating. The case was therefore reported to the Gyaasihene who was in charge of all the household of the Ohene. Two sheep were at once slaughtered and their fore-legs were sent to Abire, for such was the name of the young woman. Her parents, her husband and Afriyie, who sent her, were informed of what had happened. Afriyie's husband decided that Afriyie should be responsible for the case ' and pay all expenses which might be incurred, to free Abire from all encumbrances. Afriyie had nothing to do or say but, to accept the terms. Considering the seriousness of the case, and how high the expenses might be, Afriyie sulkily left the L place to her father's house with the intention to report the case to him. Her father was not in the house, so she asked her younger brother to go round her father's friends to see if he might be found. He was found in the house of a physician who was attending a nephew of Afriyie's father. The medicine man had prescribed some things which must be procured for the preparation of the medicine. No woman or man other than the nearest relative of the patient was to touch the prescribed things. Afriyie's father was therefore very busily engaged and could not come immediately, as Afriyie expected. Afriyie and her mother were not a little annoyed, and the young woman could not control her anger, so she said: 
-"Now that I am in hot waters, my father has left me severely alone while he looks after his nephew. Never mind. God is there. I know the Adontenhene will not kill me because of this case; but a fine will be imposed on me. If I bear a child, that will be another servant for my father to be used as his bought slave."
- Her father, who had arrived by now and was standing outside to listen to all what was being said in the house, then entered, and with intense anger he said to Afriyie:
- "Do you dare speak thus to your father who gave you birth? You have proved yourself ungrateful. You have no respect for me. You are now married, and soon you will be a mother. If after you have troubled yourself about your child until he grows to your present age and he were to speak to you in the same tone as you just spoke to me, would you like it?" 
-Afriyie was ashamed of what she had said behind her father's back. She fell on her knees and asked his pardon. Her mother and brothers also implored the father to forgive her. The man then calmly explained to them why he could not at once. They all understood, and he readily forgave his daughter. Afterwards he went to the house of the Mankrado11 and asked him to intercede in the case and try to bring the charges down. The Mankrado gave him a fair promise, so he and his family were able to eat and to pass a restful night. 
+<p>AMONG THE men assembled there, was one whom Odakwa respected. This man held her by the hand, and led her to her house, when <persName>Konaduwa</persName> was still brawling. Not long after her departure, <perName>Kwaku Anyinam</perName>, a trusted minister to <persName>Nana Addo Kwame</persName>, happened to pass by on his own accord. When Konaduwa saw him she shouted more loudly, and repeated the words she first spoke to <p>Akua Adae</p>, her rival, at the beginning of the quarrel. She then lay a stronger emphasis on these words:</p>
+
+<p>"You say the Adontenhene and his Elders, including <persName>Nana Adoma Hemma</persName>, the Queenmother, are all extortioners. You will be answerable sometime to the owners of this town."</p>
+
+<p>When <persName>Anyinam</persName> heard this, he exclaimed: <persName>"Madam Konaduwa</persName>, I have found a treasure-trove in your mouth. You say somebody lives in this town who has been so fearlessly able to speak against the Adontenhene whose justice, generosity and affection towards his subjects is known throughout <placeName>Akyem</placeName>, <placeName>Asante</placeName>, <placeName>Kotoku</placeName>, <placeName>Accra</placeName> and <placeName>Akuapem</placeName>? You say that the same person had the audacity to speaking ill against our gracious and esteemed Queen-Mother as well as the Elders of <placeName>Abetifi</placeName>. Why did you not report the case officially to the Linguist, so that sheep might be slaughtered before the news reaches the Elders? You have intentionally concealed the matter and you have therefore broken the Great Oath of the Omanhene, to whom you will be answerable."</p>
+
+<p>Having said this, Anyinam went to the house of <persName>Okyeame Kwadwo Kuma</persName> with the speed of a lightning and reported the ׳case to him. No sooner had he finished speaking, when twelve !'sheep were caught in the street and slaughtered; their prices varied from Asia to Dwaa. One foreleg of each sheep was put ־aside for the offender, according to the custom of the country. The Okyeame then went with the dead sheep to the house of the Adontenhene, who, on seeing the carcasses, sent for <placeName>Adane</placeName>, the Head Drummer, whom he ordered to sound a summoning, call. The big drums, the talking drums and all the smaller ones were beaten with not a little vehemence, and the horns were blown. </p>
+
+<p>The sudden sounding of the drums set the whole town in commotion. Men, women and children who had gone to their farms6 to do their usual work rushed home, and forced (their way to the Ahenfie to hear what was the matter. You can imagine what pandemonium ruled the place? Stool carriers from lithe houses of the Elders poured in from all the corners of the town, carrying the chairs or stools of their masters. </p>
+
+<p>In his eagerness, the Principal Sword-Bearer, <persName>Kwabena Somua</persName>, who was then in an extreme hurry, knocked down a young woman carrying some food on a tray. Down went the young woman and the tray, and the bridal food intended for the husband of another young woman named <persName>Afriyie</persName> was ' spilled on the ground and the dishes shattered to pieces.</p>
+
+<p>The young girl rose to her feet, and in fit of anger said to the Sword-Bearer: "Why did you act so foolishly? Have you got your eyes at your anus?"</p>
+
+<p>Among the Akans, the word "FOOL" is never spoken to an ordinary man by any woman whatever. It is punishable by fines and the slaughter of sheep. Unfortunately, <persName>Kwabena Somua</persName> was not an ordinary man. As stated before, he was the Chief Sword-Bearer who wore a head-gear made of an eagle's feathers with a replica of two sheep horns, one gilded with gold and the other with silver fixed in front of his hat. This hat indicated the loftiness of his rank. As you can imagine, this insult was considered most aggravating. The case was therefore reported to the Gyaasihene who was in charge of all the household of the Ohene. Two sheep were at once slaughtered and their fore-legs were sent to Abire, for such was the name of the young woman. Her parents, her husband and <persName>Afriyie</persName>, who sent her, were informed of what had happened. Afriyie's husband decided that <persName>Afriyie</persName> should be responsible for the case ' and pay all expenses which might be incurred, to free Abire from all encumbrances. Afriyie had nothing to do or say but, to accept the terms. Considering the seriousness of the case, and how high the expenses might be, <persName>Afriyie</persName> sulkily left the L place to her father's house with the intention to report the case to him. Her father was not in the house, so she asked her younger brother to go round her father's friends to see if he might be found. He was found in the house of a physician who was attending a nephew of Afriyie's father. The medicine man had prescribed some things which must be procured for the preparation of the medicine. No woman or man other than the nearest relative of the patient was to touch the prescribed things. Afriyie's father was therefore very busily engaged and could not come immediately, as Afriyie expected. <persName>Afriyie</persName> and her mother were not a little annoyed, and the young woman could not control her anger, so she said: </p>
+
+<p>"Now that I am in hot waters, my father has left me severely alone while he looks after his nephew. Never mind. God is there. I know the Adontenhene will not kill me because of this case; but a fine will be imposed on me. If I bear a child, that will be another servant for my father to be used as his bought slave."</p>
+
+<p>Her father, who had arrived by now and was standing outside to listen to all what was being said in the house, then entered, and with intense anger he said to Afriyie:</p>
+
+<p>"Do you dare speak thus to your father who gave you birth? You have proved yourself ungrateful. You have no respect for me. You are now married, and soon you will be a mother. If after you have troubled yourself about your child until he grows to your present age and he were to speak to you in the same tone as you just spoke to me, would you like it?" </p>
+
+<p><persName>Afriyie</persName> was ashamed of what she had said behind her father's back. She fell on her knees and asked his pardon. Her mother and brothers also implored the father to forgive her. The man then calmly explained to them why he could not at once. They all understood, and he readily forgave his daughter. Afterwards he went to the house of the Mankrado11 and asked him to intercede in the case and try to bring the charges down. The Mankrado gave him a fair promise, so he and his family were able to eat and to pass a restful night.</p> 
 
 CHAPTER 6 The Arrest and Trial of Konaduwa 
-AFTER THE sheep had been slaughtered and the announcement made to the Adontenhene and his Elders, Anyinam returned to arrest Konaduwa as a prisoner of oath. She was, asked to pay the arrest fee of eight shillings; but as she had no money on her, she gave the silver bangle she wore on her left wrist in lieu of the amount. A piece of hollowed pawpaw stem was given to her as a sign of her being a prisoner of oath. 
-This she was ordered to carry with her anywhere she went until the case would be heard and judged. Formerly, the wrist of an oath prisoner was shackled to a heavy log; but when the conditions were ameliorated by the advent of the white ץ man, a hollow pawpaw stem was issued instead.  
-When the prisoner was brought to court, she was asked to find someone to stand surety for her. She asked her husband to do so. Owusu said he could not do so without any of her relatives. Her maternal uncle and her father came to support Owusu. They were asked to swear that in the event of Konaduwa losing the case, they would readily pay all the expenses without trouble or delay. They swore to do so. 
-The Tribunal Registrar then stood up, and Adusei Akyakya and the other Court-Criers cried loudly saying: "Yeretie, yeretie, oo! Aso nto nkom! odede oo!" That is: 'Hearken ye. All ears must be quiet as if in sleep. Keep perfect silence, everybody.׳ Adusei, the Chief of the Court-Criers, wore his cap made of the skins of a white monkey, finished with red baft; his subordinates wore theirs made of the skin of the ordinary black monkey. 
-After this official bidding of silence, perfect silence deep 20 as death ruled over the Court. The Registrar then held his charge-book in both hands, and loudly and distinctly read the charges against Konaduwa. 
-State Versus Konaduwa 
-(i)	"That you, on Saturday, the fifth of July, 1913, at a farm, did say that a certain man attempted rape on you, contrary to the customs of the state, but when you came home, you failed to report the case. Are you guilty or not guilty?" 
+<p>AFTER THE sheep had been slaughtered and the announcement made to the Adontenhene and his Elders, <presName>Anyinam</presName>returned to arrest <persName>Konauwa</persName> as a prisoner of oath. She was, asked to pay the arrest fee of eight shillings; but as she had no money on her, she gave the silver bangle she wore on her left wrist in lieu of the amount. A piece of hollowed pawpaw stem was given to her as a sign of her being a prisoner of oath.</p>
 
-"Not Guilty." 
+<p>This she was ordered to carry with her anywhere she went until the case would be heard and judged. Formerly, the wrist of an oath prisoner was shackled to a heavy log; but when the conditions were ameliorated by the advent of the white ץ man, a hollow pawpaw stem was issued instead.</p>
 
-(ii)	"That you, on the same day and place, did say that a certain man attempted to take your life; but when you came home, you did not report it, but by intentional concealment broke the Great Oath of the Omanhene. Are you guilty or not guilty?" 
+<p>When the prisoner was brought to court, she was asked to find someone to stand surety for her. She asked her husband to do so. Owusu said he could not do so without any of her relatives. Her maternal uncle and her father came to support <persName>Owusu</persName>. They were asked to swear that in the event of <persName>Konaduwa</persName> losing the case, they would readily pay all the expenses without trouble or delay. They swore to do so. </p>
 
-"Not Guilty." 
+<p>The Tribunal Registrar then stood up, and <persName>Adusei Akakya</persName> and the other Court-Criers cried loudly saying: "Yeretie, yeretie, oo! Aso nto nkom! odede oo!" That is: 'Hearken ye. All ears must be quiet as if in sleep. Keep perfect silence, everybody.׳ <pesName>Adusei</pesName>, the Chief of the Court-Criers, wore his cap made of the skins of a white monkey, finished with red baft; his subordinates wore theirs made of the skin of the ordinary black monkey. </p>
 
-(iii)	"That you, on the same date, in the town of Abetifi, and in your house, did swear the Great Oath of the State and enforced it with fetish oath by Fofie and Obonyame that your husband must divorce you contrary to the customs of the state. What do you plead?"
+<p>After this official bidding of silence, perfect silence deep 20 as death ruled over the Court. The Registrar then held his charge-book in both hands, and loudly and distinctly read the charges against Konaduwa.</p>
 
- "Guilty, but with Explanation." 
+<p>State Versus <p>Konaduwa</p>
 
-(iv)	"That you, in the same day, and in your premises, did charge all the Adontenhene's brave warriors who assembled there with cowardice and compared them with kapok which is a very comprehensive insult. What do you plead? 
+<p>(i)	"That you, on Saturday, the fifth of July, 1913, at a farm, did say that a certain man attempted rape on you, contrary to the customs of the state, but when you came home, you failed to report the case. Are you guilty or not guilty?"</p> 
 
-"Not Guilty."  
+<p>"Not Guilty."</p>
 
-(v)	"That you, on the same day, and in this town did say that somebody was bold enough to speak ill against the Adontenhene whom we adore with all possible awe and reverence; and also against the esteemed Queen-mother as well as the Elders of this town; but you intentionally concealed it; contrary to the customs of this state. Are you guilty or not guilty?"
+<p>(ii)	"That you, on the same day and place, did say that a certain man attempted to take your life; but when you came home, you did not report it, but by intentional concealment broke the Great Oath of the Omanhene. Are you guilty or not guilty?"</p> 
 
- "Not Guilty." 
+<p>"Not Guilty."</p> 
 
-(vi)	"That you on the same day, and in your premises, did say that your husband has bought a slave contrary to the British laws. Are you guilty or not guilty?" 
+<p>(iii)	"That you, on the same date, in the town of Abetifi, and in your house, did swear the Great Oath of the State and enforced it with fetish oath by Fofie and Obonyame that your husband must divorce you contrary to the customs of the state. What do you plead?"</p>
 
-"I will be answerable to the British Court, not to you."
- The Registrar turned to the Akyeame and asked them to tell the Adontenhene and his Elders all what the accused had said.
- The accused was then asked to go into the witness box to give her evidence. She went; but when she was asked to swear that she would tell the truth, the whole truth, and nothing but the truth; she asked with pretentious dignity: "And who is the plaintiff in this case?" 
- "The State," Okyeame Safo replied. "We will examine you, and if we satisfy ourselves that you are innocent, you will be acquitted; if not, you will be dealt with according to the laws the State." 
-"Right, will any of the Elders here assembled examine me too?״ 
- "Decidedly," said the Mankrado
- "And will the Adontenhene too exercise his usual power of ordering one of you to pronounce judgment?"
- "Exactly so," said one of the Akyeame. 
-"And who will retire into consultation before the judgement is given?"
-"The Elders, as usual." 
-The accused then said with blazing audacity: "As it is, I find that I am like a cockroach who has fallen amongst a multitude of fowls. There is nobody in this court who will give ear to my defence, for all of you are interested in the case. I will therefore reserve my defence until fresh people who have no interest in the case sit on it."
- A very tumultuous noise arose in the court. Some enthusiasts admired her far-sightedness, and others reproached her for her impenetrable stubbornness. Tortuous and circuitous questions were pelted at her, but she did not say a word. 
-The Adontenhene who had been silent since the opening of the court, then prepared to speak. Adusei Akyakya and all the linguists stood up, according to custom, and the court criers shouted for silence, and perfect silence reigned at the premises. Addressing Okyeame Owusu, the Adontenhene said: "Ask Konaduwa by which court she would like her case to be tried?" 
-She replied that she preferred the District Commissioner's Court. 
-"Does she not like that the Omanhene tries her?" 
-"No, Nana." 
-"Why?"
- "Because he is your kinsman; and, besides, in any fine that you collect at the court he has a share." 
-"Does she mean then that the Omanhene will be biased towards her?" "Emphatically yes."
- "Her father and her husband, who stood surety for her became sorely afraid; and asked her to retract what she said, else the consequence would be far worse than what they expected. Konaduwa told them that if they had the hearts of rabbits, they should retire. 
-The Adontenhene then ordered that two sheep should be caught and slaughtered instantly, because of the statement the accused made at the open court against the Omanhene.  This having been done, he calmly granted the woman her permission to withdraw the case to the District Commissioner's court as ' J -׳she desired. The forelegs of the sheep were sent to her, and נ the flesh sent through some Nhenkwaa to the Omanhene  Boateng Asabranna. 
+<p> "Guilty, but with Explanation." </p>
+
+<p>(iv)	"That you, in the same day, and in your premises, did charge all the Adontenhene's brave warriors who assembled there with cowardice and compared them with kapok which is a very comprehensive insult. What do you plead? </p>
+
+<p>"Not Guilty."</p>  
+
+<p>(v)	"That you, on the same day, and in this town did say that somebody was bold enough to speak ill against the Adontenhene whom we adore with all possible awe and reverence; and also against the esteemed Queen-mother as well as the Elders of this town; but you intentionally concealed it; contrary to the customs of this state. Are you guilty or not guilty?"</p>
+
+ <p>"Not Guilty."</p> 
+
+<p>(vi)	"That you on the same day, and in your premises, did say that your husband has bought a slave contrary to the British laws. Are you guilty or not guilty?"</p> 
+
+<p>"I will be answerable to the British Court, not to you."</p>
+
+<p>The Registrar turned to the Akyeame and asked them to tell the Adontenhene and his Elders all what the accused had said.</p>
+
+<p>The accused was then asked to go into the witness box to give her evidence. She went; but when she was asked to swear that she would tell the truth, the whole truth, and nothing but the truth; she asked with pretentious dignity: "And who is the plaintiff in this case?"</p>
+
+<p>"The State," Okyeame Safo replied. "We will examine you, and if we satisfy ourselves that you are innocent, you will be acquitted; if not, you will be dealt with according to the laws the State." </p>
+
+<p>"Right, will any of the Elders here assembled examine me too?״ </p>
+
+ <p></p>"Decidedly," said the Mankrado</p>
+ 
+ <p>"And will the Adontenhene too exercise his usual power of ordering one of you to pronounce judgment?"</p>
+ 
+ <p>"Exactly so," said one of the Akyeame.</p>
+ 
+<p>"And who will retire into consultation before the judgement is given?"</p>
+
+<p>"The Elders, as usual."</p>
+
+<p>The accused then said with blazing audacity: "As it is, I find that I am like a cockroach who has fallen amongst a multitude of fowls. There is nobody in this court who will give ear to my defence, for all of you are interested in the case. I will therefore reserve my defence until fresh people who have no interest in the case sit on it."</p>
+
+ <p>A very tumultuous noise arose in the court. Some enthusiasts admired her far-sightedness, and others reproached her for her impenetrable stubbornness. Tortuous and circuitous questions were pelted at her, but she did not say a word.</p>
+ 
+<p>The Adontenhene who had been silent since the opening of the court, then prepared to speak. <persName>Adusei Akyakya</persName> and all the linguists stood up, according to custom, and the court criers shouted for silence, and perfect silence reigned at the premises. Addressing <persName>Okyeame Owusu</persName>, the Adontenhene said: "Ask Konaduwa by which court she would like her case to be tried?"</p>
+
+<p>She replied that she preferred the District Commissioner's Court.</p>
+
+<p>"Does she not like that the Omanhene tries her?"</p>
+
+<p>"No, Nana." </p>
+
+<p>"Why?"</p>
+
+ <p>"Because he is your kinsman; and, besides, in any fine that you collect at the court he has a share."</p>
+ 
+<p>"Does she mean then that the Omanhene will be biased towards her?" "Emphatically yes."</p>
+
+<p> "Her father and her husband, who stood surety for her became sorely afraid; and asked her to retract what she said, else the consequence would be far worse than what they expected. <persName>Konaduwa</persName> told them that if they had the hearts of rabbits, they should retire.</p> 
+
+<p>The Adontenhene then ordered that two sheep should be caught and slaughtered instantly, because of the statement the accused made at the open court against the Omanhene.  This having been done, he calmly granted the woman her permission to withdraw the case to the District Commissioner's court as ' J -׳she desired. The forelegs of the sheep were sent to her, and נ the flesh sent through some Nhenkwaa to the <persName>Omanhene  Boateng Asabranna</persName>. </p>
 
 CHAPTER 7 
 Before the District Commissioner 
