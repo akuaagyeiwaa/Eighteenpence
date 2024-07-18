@@ -145,7 +145,7 @@ CHAPTER 5 The Report
 
 <p>"Now that I am in hot waters, my father has left me severely alone while he looks after his nephew. Never mind. God is there. I know the Adontenhene will not kill me because of this case; but a fine will be imposed on me. If I bear a child, that will be another servant for my father to be used as his bought slave."</p>
 
-<p>Her father, who had arrived by now and was standing outside to listen to all what was being said in the house, then entered, and with intense anger he said to Afriyie:</p>
+<p>Her father, who had arrived by now and was standing outside to listen to all what was being said in the house, then entered, and with intense anger he said to <persName>Afriyie</persName>:</p>
 
 <p>"Do you dare speak thus to your father who gave you birth? You have proved yourself ungrateful. You have no respect for me. You are now married, and soon you will be a mother. If after you have troubled yourself about your child until he grows to your present age and he were to speak to you in the same tone as you just spoke to me, would you like it?" </p>
 
