@@ -12,7 +12,6 @@
         <date>1943</date>
       </publicationStmt>
       <sourceDesc>
-        <p>Original text from "Eighteenpence" by R.E.Obeng.</p>
       </sourceDesc>
     </fileDesc>
   </teiHeader>
