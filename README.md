@@ -13,16 +13,14 @@
       </publicationStmt>
       <sourceDesc>
         <p>Original text from "Eighteenpence" by R.E.Obeng.</p>
-	<p>Original text from "Eighteenpence" by R.E. Obeng.</p>
       </sourceDesc>
     </fileDesc>
   </teiHeader>
   <text>
     <body>
-      <div type="chapter" n="I">
+      <div type="chapter" n="1">
         <head>The Purchase</head>
-CHAPTER 1
-The Purchase
+
 
  <p>IN THE ancient and salubrious town of <placeName>Abetifi</placeName>, in the country of <placeName>Kwahu</placeName>, in the reign of <persName>Nana Addo Kese Pamboo</persName>, there lived a man whose name was Obeng-Akrofi. Obeng, though kind- hearted, was as poor as a church rat. He was also so self-conscious that he could not approach any of his friends or relatives for anything. His property on earth, besides his only cloth which was threadbare, was a small dog who followed him anywhere he went. This dog he named "Poor-no-Friend". </p>
  
