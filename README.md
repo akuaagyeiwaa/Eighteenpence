@@ -1,10 +1,10 @@
 # Eighteenpence
-F.<?xml version="1.0" encoding="UTF-8"?>
+
 <TEI xmlns="http://www.tei-c.org/ns/1.0">
   <teiHeader>
     <fileDesc>
       <titleStmt>
-        <title>R.E.Obeng</title>
+        <title>Eighteenpence</title>
         <author>R.E.Obeng</author>
       </titleStmt>
       <publicationStmt>
