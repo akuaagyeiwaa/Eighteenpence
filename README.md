@@ -39,7 +39,7 @@
 
 <p>The two weeks allowed to Akrofi by the good petty-trader 'tor making good his account elapsed without fulfilment of the obligation. The creditor was justifiably angry, and sent his boy to Akrofi to ask for the money. The sight of the messenger brought Akrofi to his senses, for the pleasure of the work done in his farm had absorbed all his mind so that he had forgotten about this obligation. He fried some of the corn and some of the ground-nuts which he had at hand to regale the boy. When the messenger finished eating, <persName>Obeng-Akrofi</persName>serif him back to his master with a message that he would see him personally that evening and without fail. Having made several mounds for the ground nuts, and closed the day's work at about five o'clock in the evening, Akrofi went home. </p>
 
-<div type="chapter"n="2">
+
 <head><p>CHAPTER 2</p></head>
 The Servitude
 <p>WHEN <persName>AKROFI</persName> had had his bath and eaten the little food left him by his aunt, he asked her to accompany him to the house of his creditor, whose name was <persName>Owusu Aduemiri</persName>, to ask him for a further extension of time for the settlement of his account. His only hope was to sell the crops of the farm which was being made, and pay him from the income, but his aunt would not go. He wept. With torrents of tears streaking on his cheeks, he went to <persName>Owusu</persName> with the boldness of a lioness robbed of her cubs, and flung' himself at his feet and most humbly told him his ־errand, concluding ־by' telling <persName>Owusu</persName> that he would pawn himself to him, and do all the work of a servant until after three months when he knew full well that he could obtain money to pay him.</p>
