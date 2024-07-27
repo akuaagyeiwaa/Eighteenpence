@@ -60,7 +60,7 @@ The Servitude
 
 <p>On his arrival, Akrofi went to greet his master according to custom. Owusu inquired as to the whereabouts of his wife. <persName>Akrofi</persName> told him that he left her in the farm, and nothing else. <persName>Aduemiri</persName> showed him his food which he had kept for him. This he gulped in a short time. He cleaned the dishes and then put them at their proper places; and after a short conversation about the work in the farm, <persName>Akrofi</persName> took his leave and went to his house.</p>
 
-CHAPTER 3
+<head><p>CHAPTER 3</p></head>
 The Quarrel
 <p>ABOUT SEVEN o'clock that evening, <persName>Owusu</persName> went to see if his wife had now returned from the farm, and if she had, to ask her why she failed to come or to send somebody to greet him when she arrived from the farm, according to custom. As soon as he entered the house, <persName>Konaduwa</persName> began to shower abusive words on him. Quite astonished, <persName>Owusu</persName> stood for a while and then asked: "What is the matter with you? Are you mad or what ails you?"</p>
 
@@ -87,7 +87,8 @@ When <persName>Adae</persName> was about to speak, Owusu put his hand round her 
 	 
 He was very much pleased, and said: "How true it is that after a great storm, there is always calm." He then bade <persName>Adae</persName> 'Good-night', and repaired to his house. 
 
-CHAPTER 4 A Mother's Yearning 
+<head><p>CHAPTER 4</p>
+A Mother's Yearning 
 <p>AS <persName>OWUSU</persName> was going go his house, he met with his mother who had gone to his end in his absence several times that evening; and as she could not guess where he had gone, she was going to <persName>Akua Adae’s</persName> house to inquire if she had seen him. When Qdakwaa Aboroma (for that was the name of Owusu׳s mother) was going to ,<persName>Akua Adae's</persName> house, she met with <persName>Konaduwa</persName> who was very hotly angry. She asked Konaduwa why and with whom she was quarrelling; but she did not receive any answer. She thought <persName>Konaduwa</persName>persName> was quarrelling with <perName>Adae</perName>. <persName>Odakwaa</persName> then turned and looked at Owusu who was being led by his son Atoapoma with a lantern. On seeing the bandage on his head which bore a speck of blood, she exclaimed with horror, saying: "Puei, puei, puei. Aduemiri, you are done for. What gave you this wound. Owusu, do speak to me, I am losing my mind. Are you a living dead?"</p>
 
  <p>Owusu then said: "Mother, keep quiet, let us go home, and I will tell you all about it."</p>
@@ -126,7 +127,8 @@ CHAPTER 4 A Mother's Yearning
 
 <p>The remaining men, seeing that she was still pertinacious and obstinate in the last degree, ceased to plead for her; but she being confident of success, shouted all the more with a subtle emphasis of scorn.</p> 
 
-CHAPTER 5 The Report 
+<head><p>CHAPTER 5</p></head>
+The Report 
 <p>AMONG THE men assembled there, was one whom Odakwa respected. This man held her by the hand, and led her to her house, when <persName>Konaduwa</persName> was still brawling. Not long after her departure, <perName>Kwaku Anyinam</perName>, a trusted minister to <persName>Nana Addo Kwame</persName>, happened to pass by on his own accord. When Konaduwa saw him she shouted more loudly, and repeated the words she first spoke to <p>Akua Adae</p>, her rival, at the beginning of the quarrel. She then lay a stronger emphasis on these words:</p>
 
 <p>"You say the Adontenhene and his Elders, including <persName>Nana Adoma Hemma</persName>, the Queenmother, are all extortioners. You will be answerable sometime to the owners of this town."</p>
@@ -228,7 +230,7 @@ CHAPTER 6 The Arrest and Trial of Konaduwa
 
 <p>The Adontenhene then ordered that two sheep should be caught and slaughtered instantly, because of the statement the accused made at the open court against the Omanhene.  This having been done, he calmly granted the woman her permission to withdraw the case to the District Commissioner's court as ' J -׳she desired. The forelegs of the sheep were sent to her, and נ the flesh sent through some Nhenkwaa to the <persName>Omanhene  Boateng Asabranna</persName>. </p>
 
-CHAPTER 7 
+<head><p>CHAPTER 7 </p></head>
 <p>Before the District Commissioner </p>
 
 <p>WHEN THE assembly broke up, <persName>Konaduwa</persName> sped quickly away with the intention to go to Asiakwa to report the case to the District Coin mission er. But at <placeName>Anyinam</placeName>, the <placeName>Birem</placeName> had overflown its banks and a ferry-toll of sixpence was exacted by the ferrvmen from, every passenger. <persName>Konaduwa</persName> was asked by one of the ferrymen to pay the amount. A smile like eternal sunshine parted her lips and brightened her teeth, which had a gap at the centre of the upper row.</p>
